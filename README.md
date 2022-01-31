@@ -1,1 +1,1 @@
-[https://nutbread.github.io/t2m/](https://nutbread.github.io/t2m/)
+[https://torrent2magneturl.thopdb.com/](https://torrent2magneturl.thopdb.com/)
